@@ -1,0 +1,1 @@
+You need a photo in the project.
